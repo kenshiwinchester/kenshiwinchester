@@ -1,3 +1,5 @@
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314lilf3yabcnzfr2plrul536vse&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
 ![job](https://64.media.tumblr.com/178b774805b7ff0cd6673e6d5e471b12/020e50bf5046c0ef-af/s250x400/652869b520df2ade077afaaea3d8e613444aa7eb.gifv)
 
 ![bebe](https://64.media.tumblr.com/2b70152c8205ae4fe6cde79506366df8/dbf35dae3381d18b-79/s400x600/9e95e01e8a5aa62160b6b70d5684b64c94647ce5.gifv)
