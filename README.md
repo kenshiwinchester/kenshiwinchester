@@ -6,9 +6,9 @@
 ![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314lilf3yabcnzfr2plrul536vse&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)
 
 
-̣ 　⠀ 𓈒　　ℱ　⠀𓂃　　text　⠀╱⠀　text text 　ᛝ　⠀𓏼　⠀𓎟𓎟⠀　⠀ text text　⠀｡⠀⠀
+̣ 　⠀ 𓈒　　ℱ　⠀𓂃　　transman　⠀╱⠀　he him 　ᛝ　⠀𓏼　⠀𓎟𓎟⠀　⠀ yume fictkin　⠀｡⠀⠀
 
-emoji　　੭　　OO%　˙　tex text　⠀ױ　 　　ꈍ ᴗ　　text text　
+emoji　　੭　　OO%　˙　https://justken67.straw.page　⠀ױ　 　　ꈍ ᴗ　　text text　
 
 emoji　　﹕　 　text text　　﹚　　text text
 
